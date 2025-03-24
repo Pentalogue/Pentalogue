@@ -2,7 +2,7 @@
 - 👀 I'm interested in maths, physics, programming, sound design and sound processing, music and music theory, googology, large numbers and special maths functions
 - 🌱 I'm currently learning maths, physics and a bit of programming
 - 💞️ I’m looking to collaborate with @Quitin
-- 📫 How to reach me on Discord: <@889087940179935253>
+- 📫 How to reach me on Discord: @Pentalogue
 - 😄 Pronouns: He/His/Him
 - ⚡ Fun fact: I'm an avid sound guy
 
